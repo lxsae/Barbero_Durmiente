@@ -8,4 +8,4 @@ El Barbero Durmiente
 - Elkin Tovar - 1931440
 - Ivan Noriega - 2126012
 
-`   Link del video:   https://youtu.be/crsFH-WJoxA?si=kwEqRclmMzyOOati`
+Link del video: https://youtu.be/crsFH-WJoxA?si=kwEqRclmMzyOOati
